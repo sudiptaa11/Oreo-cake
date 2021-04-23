@@ -1,0 +1,9 @@
+-grind oreo biscuit in mixer
+-take it out in a bowl
+-add milk, butter, sugar
+-mix it thoroughly
+-it should semiliquid
+-add baking powder and baking soda
+-stir well
+-add chocochips
+-bake it
